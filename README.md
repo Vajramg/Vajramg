@@ -3,7 +3,8 @@
 
  ## 🌱 I’m currently learning 
 
-![image](https://github.com/vajramg/258632315-3385d702-1285-47ff-8884-ca56aa13d63f)
+![image](https://github.com/Vajramg/Vajramg/assets/26093778/9d0862c9-27b3-42ec-b223-ffa55e17b469)
+
 
 ## 🗺️📍 Where to find me
 - [Linkedln👔🔗](https://www.linkedin.com/in/vajramg/)
