@@ -7,7 +7,7 @@
 
 
 ## 🗺️📍 Where to find me
-- [Linkedln👔🔗](https://www.linkedin.com/in/vajramg/)
+- [Linkedln👔🔗](https://www.linkedin.com/in/vajramgajengi/)
 - vajramg@gmail.com📧
 - [Hashnode✍️📝](https://hashnode.com/@vajramg)
 
